@@ -1,2 +1,2 @@
-# delulu.hithub.io
+# delulu.github.io
 https://youtu.be/aJakSXHZROo?si=PJffr4n9cIIWteTe
